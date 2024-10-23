@@ -1,2 +1,0 @@
-
-My portfolio of work
